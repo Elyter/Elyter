@@ -1,1 +1,1 @@
-# I code with my ass and it's swag
+# I code with my ass and i think it's swag
